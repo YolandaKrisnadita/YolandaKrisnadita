@@ -9,4 +9,4 @@ Welcome to my Github page:
 - 🌱 I’m currently learning AI Technology specially for Global Sustainable Development
 - 💬 Ask me about Camping, Traveling and AI
 - 📫 How to reach me: send me your warm message to haloyolanda@gmail.com
-- ⚡ Fun fact: I like Ramen 
+- ⚡ Fun fact: I like Ramen and Ghibli
